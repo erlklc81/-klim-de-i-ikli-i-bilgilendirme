@@ -1,0 +1,1 @@
+# -klim-de-i-ikli-i-bilgilendirme
